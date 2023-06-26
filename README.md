@@ -12,7 +12,7 @@
 ---
 - 🌱 I’m currently learning at: **www.SoyHenry.com**
 ---
-- 👨‍💻 My projects are available at: [https://wj3373-3000.csb.app] [https://ilnbo7-3000.csb.app]
+- 👨‍💻 My projects are available at: [https://wj3373-3000.csb.app] [https://0ms918-3000.csb.app]
 ---
 - 📫 How to reach me: **bleed.7712@gmail.com** 
 ---
